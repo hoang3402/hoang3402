@@ -6,7 +6,6 @@
 ### Self Introduction
 
 A college student
-***Currently Busy with school work and unavailable.***
 
 ### Overall Status
 
