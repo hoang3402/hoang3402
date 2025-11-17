@@ -5,7 +5,7 @@
 
 ### Self Introduction
 
-A college student
+Backend developer
 
 ### Overall Status
 
